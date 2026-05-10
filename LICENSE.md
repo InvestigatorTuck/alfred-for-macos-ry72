@@ -1,4 +1,4 @@
-
+Alfred for macOS secure Integration - AI assistant and voice notes offers the most advanced Alfred for macOS integration, with AI assistant and voice notes. Ideal for
 
 
 
